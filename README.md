@@ -5,7 +5,7 @@
 
 Проект
 
-АХ как сложно hbjhvjgvjk
+АХ как
 
 aaaaaaaaaaaaaaaaaaaaaaaa
 bbbbbbbbbbbbbbbbbbbbbbbbb
